@@ -28,9 +28,10 @@ not worry that his films started a Spaghetti Westerns in Italy and beyond. He
 played a trumpet and piano and had developed a wide range of experience with
 electronic and analog instruments.
 
-### Please explore more about Ennio Marccione
+### Please explore more about Ennio Mariccione
 
     * link to spotify, apple music, foundation page,
+    * Foundation located in Italy [Link text Here](https://www.fondazionemorricone.it/addio-gino-paoli-la-sua-sapore-di-sale-arrangiata-da-ennio/)
 
 ### My take on this
 
